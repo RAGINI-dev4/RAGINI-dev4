@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ragininishad333@gmail.com**
 
-- ⚡ Fun fact **BOOK LOVER😇**
+- ⚡ Fun fact **ANIME LOVER**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
